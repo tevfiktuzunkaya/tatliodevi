@@ -1,2 +1,0 @@
-# tatliodevi
-tatliodevi
